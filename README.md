@@ -1,1 +1,1 @@
-# somoim.github.io
+# somoim
